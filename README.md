@@ -1,0 +1,2 @@
+Link laporan
+[[# UAS_Grafkom](https://docs.google.com/document/d/1-EYyR4z95XaI_AZgwaoo3RoSmqz-sIl9Qg9MHQ7JXFo/edit?usp=sharing)https://docs.google.com/document/d/1-EYyR4z95XaI_AZgwaoo3RoSmqz-sIl9Qg9MHQ7JXFo/edit?usp=sharing ](https://docs.google.com/document/d/1-EYyR4z95XaI_AZgwaoo3RoSmqz-sIl9Qg9MHQ7JXFo/edit?usp=sharing)https://docs.google.com/document/d/1-EYyR4z95XaI_AZgwaoo3RoSmqz-sIl9Qg9MHQ7JXFo/edit?usp=sharing
